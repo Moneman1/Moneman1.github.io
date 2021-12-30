@@ -1,7 +1,7 @@
 # Simon Shuster
 
 
-I am an rising senior at the Univercity of Western Carolina. 
+I am an rising senior at the University of Western Carolina. 
 
 ---
 
