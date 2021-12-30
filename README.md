@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Welcomes to GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/Moneman1/Moneman1.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
