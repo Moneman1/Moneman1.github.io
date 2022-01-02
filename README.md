@@ -1,7 +1,7 @@
 # Simon Shuster Personal Portfolio
 
 
-Actively advancing towards Computer information Systems BSBA  at the University of Western Carolina.
+Third year student in my Junior year advancing towards Computer information Systems BSBA at the University of Western Carolina.
 Minoring in both Visual Analytics and Economics.
 
 
