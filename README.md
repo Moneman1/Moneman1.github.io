@@ -2,7 +2,7 @@
 
 
 Actively advancing towards Computer information Systems BSBA  at the University of Western Carolina.
-I am minoring in both Visual Analytics and Economics.
+Minoring in both Visual Analytics and Economics.
 
 
 
