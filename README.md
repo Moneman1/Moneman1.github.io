@@ -2,7 +2,7 @@
 
 
 Third year student in my Junior year advancing towards Computer information Systems BSBA at the University of Western Carolina.
-Minoring in both Visual Analytics and Economics.
+Minoring in both Visual Analytics and Economics. My expected graduation is spring 2023 and overall GPA: 3.8.
 
 
 
